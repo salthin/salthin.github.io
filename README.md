@@ -7,8 +7,8 @@
 
 
 #### 💬 - Salthin#1818
-#### 🎮 - [https://steamcommunity.com/id/salthin/]
-#### ♂️ - [https://en.pronouns.page/@salthin]
+#### 🎮 - [Steam Profile](https://steamcommunity.com/id/salthin/)
+#### ♂️ - [pronouns.page](https://en.pronouns.page/@salthin)
 
 
 *Do not go gentle into that good night,
@@ -17,4 +17,4 @@ Old age should burn and rave at close of day;
 
 Rage, rage against the dying of the light...*
 
- -- Dylan Thomas - [https://poets.org/poem/do-not-go-gentle-good-night]
+ -- Dylan Thomas - [Full Poem](https://poets.org/poem/do-not-go-gentle-good-night)
