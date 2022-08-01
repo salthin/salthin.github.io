@@ -6,8 +6,8 @@
 
 
 #### 💬 - Salthin#1818
-#### 🎮 - https://steamcommunity.com/id/salthin/
-#### ♂️ - https://en.pronouns.page/@salthin
+#### 🎮 - [https://steamcommunity.com/id/salthin/]
+#### ♂️ - [https://en.pronouns.page/@salthin]
 
 
 *Do not go gentle into that good night,
