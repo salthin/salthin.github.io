@@ -11,10 +11,8 @@
 #### ♂️ - [pronouns.page](https://en.pronouns.page/@salthin)
 
 
-*Do not go gentle into that good night,
-
-Old age should burn and rave at close of day;
-
-Rage, rage against the dying of the light...*
+*Do not go gentle into that good night,*
+*Old age should burn and rave at close of day;*
+*Rage, rage against the dying of the light...*
 
  -- Dylan Thomas - [Full Poem](https://poets.org/poem/do-not-go-gentle-good-night)
