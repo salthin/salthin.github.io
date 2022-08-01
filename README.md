@@ -1,4 +1,5 @@
 ## Pursuing the path to ultimate degeneracy.  
+*i consume waifu juice*
 
 👑🐽 long live the [king](https://technoblade.com/). so long gamer
 
@@ -11,6 +12,9 @@
 
 
 *Do not go gentle into that good night,
+
 Old age should burn and rave at close of day;
+
 Rage, rage against the dying of the light...*
- -- Dylan Thomas - https://poets.org/poem/do-not-go-gentle-good-night
+
+ -- Dylan Thomas - [https://poets.org/poem/do-not-go-gentle-good-night]
